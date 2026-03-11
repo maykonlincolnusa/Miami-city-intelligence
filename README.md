@@ -438,7 +438,7 @@ miami-inteligente/
 - Florida International University — Applied Research Center
 
 ### Interested in Joining?
-Open to: cities, research institutions, private sector partners, cloud providers. Contact: [partnerships@miami-inteligente.io] *(placeholder)*
+Open to: cities, research institutions, private sector partners, cloud providers. Contact: [maykonlincoln.com] *(placeholder)*
 
 ---
 
